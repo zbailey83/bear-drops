@@ -1,5 +1,4 @@
-![image](https://github.com/user-attachments/assets/0971cd70-6b30-4353-be3f-4c1e00b93aab)
-
+![bera-plant](https://github.com/user-attachments/assets/c6829023-5b4d-46f2-841a-aad6d4a52b7b)
 # bear-drops
 # Redacted Crypto Cultists - Targeted Wallet Marketing Automation
 ## Berachain NFT/Token/dApp Wallets/Users/Members of the 25 following communitites:
